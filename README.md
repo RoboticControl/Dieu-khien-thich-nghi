@@ -1,1 +1,1 @@
-# -i-u-Khi-n-Thi-ch-Nghi
+# Điều khiển thích nghi
